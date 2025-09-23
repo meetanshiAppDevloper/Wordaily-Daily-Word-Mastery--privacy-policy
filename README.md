@@ -1,0 +1,1 @@
+# Wordaily-Daily-Word-Mastery--privacy-policy
